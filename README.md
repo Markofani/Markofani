@@ -1,4 +1,4 @@
-# Cześć, tutaj Markofani! Sprawdź nas [website](https://markofani.com.pl)
+# Cześć, tutaj Markofani! Sprawdź [nas](https://markofani.com.pl)
 Wizerunek. Marketing. Sprzedaż.
 
 ## Jesteśmy dostepni:
